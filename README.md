@@ -1,0 +1,1 @@
+# Esbo-o-projeto-plataforma-de-tr-fego-pago.
